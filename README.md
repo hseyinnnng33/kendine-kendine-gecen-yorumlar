@@ -1,0 +1,1 @@
+# kendine-kendine-gecen-yorumlar
